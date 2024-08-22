@@ -39,10 +39,12 @@ Feldsalat waschen, trocken schleudern. Trauben halbieren. Feldsalat, Trauben und
 
  ##### Guten Appetit :yum:
 
+
+
 ### Tipp zum Rezept
 
-
- Die fruchtige Note der Trauben passt toll zu den erdigen Aromen der Kartoffel. Falls du keine Trauben bekommst, kannst du auch gewürfelten Apfel oder Birne verwenden. Beides solltest du nach dem Schnippeln mit etwas Zitronensaft mischen. Er verhindert, dass das Obst durch den Kontakt mit Sauerstoff schnell braun anläuft.
+| Die fruchtige Note der Trauben passt toll zu den erdigen Aromen der      Kartoffel. Falls du keine Trauben bekommst, kannst du auch gewürfelten Apfel oder Birne verwenden. Beides solltest du nach dem Schnippeln mit etwas Zitronensaft mischen. Er verhindert, dass das Obst durch den Kontakt mit Sauerstoff schnell braun anläuft.
+ ----
 
 [Click here](https://www.rewe.de/rezepte/gruener-kartoffelsalat/)
 
